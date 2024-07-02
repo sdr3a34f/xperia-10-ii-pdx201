@@ -1,0 +1,1 @@
+# xperia-10-ii-pdx201
